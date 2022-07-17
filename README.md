@@ -1,2 +1,2 @@
 🙋‍♂️ zReaxrYT 
-🚑 Kontakt: zReaxrYT#1799 (Discord)
+🚑 Contact: zReaxrYT#1799 (Discord)
